@@ -1,5 +1,5 @@
 # <span role="presentation">▽</span> Double-A <span role="presentation">▽</span>
-Author of interactive furry literature.
+Author of interactive furry literature. If that's not something you're here for, you're probably in the wrong place.
 
 * [<img alt="Twitter logo" height=20 src="https://www.twitter.com/favicon.ico"> Twitter.com/AA_Vore_Stories](https://twitter.com/aa_vore_stories)
 * [<img alt="Ko-Fi logo" height=20 src="https://ko-fi.com/favicon.ico"> Ko-fi.com/DoubleA](https://ko-fi.com/doublea)
